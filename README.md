@@ -4,8 +4,8 @@ Nowdays this is, in most cases, this is the first interaction people have with o
 
 Hint: The title of this section is clickable.
 
-![](https://github.com/ecodigitals/Portfolio/blob/main/images/Impecable%201.jpg)
+![](/images/Impecable%201.jpg)
 ![](https://github.com/ecodigitals/Portfolio/blob/main/images/Impecable%202.jpg)
 
-# [Impecable](https://www.instagram.com/impecable.sti/)
+# [Impecable](/impecable.sti/)
 We're happy and proud to say that this was our first project.
