@@ -4,7 +4,7 @@ Como empresa dedicada a la sostenibilidad en marketing y medios de comunicación
 
 
 # [Impecable](https://www.instagram.com/impecable.sti/)
-Fue nuestro primer proyecto. Una empresa que sabía cuáles productos y servicios ofrecer, pero no cómo venderse y posicionarse.  Empezamos desde cero: creación de un roadmap. Crear su cliente ideal, marca, estrategia. Fue una experiencia de gran crecimiento. Fuimos quienes les creamos su logo, sus redes sociales desde cero,en menos de una semana llegamos a los 100 seguidores en Instagram y ampliaron sus servicios por su gran demanda.
+Fue nuestro primer proyecto. Una empresa que sabía cuáles productos y servicios ofrecer, pero no cómo venderse y posicionarse.  Empezamos desde cero: **creación de un roadmap**. Crear su cliente ideal, marca, estrategia. Fue una experiencia de gran crecimiento. Fuimos quienes les creamos su logo, sus redes sociales desde cero, **en menos de una semana llegamos a los 100 seguidores en Instagram y ampliaron sus servicios por su gran demanda**.
 
 
 ![](/images/Impecable%201.jpg)
