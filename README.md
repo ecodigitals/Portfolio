@@ -4,6 +4,15 @@ Como empresa dedicada a la sostenibilidad en marketing y medios de comunicación
 
 Elaboramos contenido digerible, actualizado. Queremos que nuestros clientes aprendan a conocer su audiencia, ya que  eso ayuda a tener mayor efectividad en nuestro trabajo.
 
+![](/images/Edli%20Acevedo%20-%20Entrevista.jpeg)
+
+![](/images/Ominipresencia%20%20-%201.jpeg)
+
+![](/images/Omnipresencia%20-%202.jpeg)
+
+![](/images/Omnipresencia%20-3.jpeg)
+
+
 
 ## [Impecable](https://www.instagram.com/impecable.sti/)
 Fue nuestro primer proyecto. Una empresa que sabía cuáles productos y servicios ofrecer, pero no cómo venderse y posicionarse.  Empezamos desde cero: **creación de un roadmap**. Crear su cliente ideal, marca, estrategia. Fue una experiencia de gran crecimiento. Fuimos quienes les creamos su logo, sus redes sociales desde cero, **en menos de una semana llegamos a los 100 seguidores en Instagram y ampliaron sus servicios por su gran demanda**.
