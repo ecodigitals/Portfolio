@@ -26,7 +26,7 @@ Adscrita al Instituto Para El Desarrollo Humano, esta Fundación sin fines de lu
 
 ## [Instituto Para El Desarrollo Humano (IDHPR)](https://www.instagram.com/movimientoetico/)
 
-Instituto  con sede en Puerto Rico, ejecutivos responsables de la Fundación Movimiento Ético. Quedaron satisfechos con el trabajo realizado en el proyecto anterior y nos contrataron para administrar de forma constante sus redes sociales, crear campañas de Email Marketing y administrar su sitio web [www.idh.orh](https://www.idh.org). Al igual que con la Fundación creamos contenido de valor sobre ética, filosofía, liderazgo ético. Así poder conectar con su audiencia presente y alcanzar nuevos usuarios.
+Instituto  con sede en Puerto Rico, ejecutivos responsables de la Fundación Movimiento Ético. Quedaron satisfechos con el trabajo realizado en el proyecto anterior y nos contrataron para administrar de forma constante sus redes sociales, crear campañas de Email Marketing y administrar su sitio web [www.idh.org](https://www.idh.org). Al igual que con la Fundación creamos contenido de valor sobre ética, filosofía, liderazgo ético. Así poder conectar con su audiencia presente y alcanzar nuevos usuarios.
 
 ![](/images/Br%C3%BAjula.jpeg.jpg)
 ![](/images/Despu%C3%A9s%20del%20Encuentro.jpeg)
