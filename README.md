@@ -19,6 +19,10 @@ Fue nuestro primer proyecto. Una empresa que sabía cuáles productos y servicio
 
 Adscrita al Instituto Para El Desarrollo Humano, esta Fundación sin fines de lucro nos contrató para llevar a cabo una campaña publicitaria en medios digitales para su Encuentro de Ética Aplicada. **Tuvimos presencia en Facebook, Instagram, Linkedin, Twitter y E-mail Marketing**.  Cuando recibimos las redes, tenían una audiencia muerta, pequeña, que no interactuaba. Le organizamos el Feed, creamos contenido educativo para conectar. Utilizamos una estrategia agresiva, de publicaciones diarias durante dos meses. Fue un reto crear contenido atractivo sobre temas de filosofía, ética y con una audiencia tan exclusiva.
 
+![](/images/Nos%20mueve.jpeg)
+![](/images/registro.jpeg)
+![](/images/ma%C3%B1ana.jpeg)
+
 
 ## [Instituto Para El Desarrollo Humano (IDHPR)](https://www.instagram.com/movimientoetico/)
 
